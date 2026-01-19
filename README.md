@@ -38,5 +38,5 @@ humanity needs more and wants to control more. Humanity, of the ambitious kind, 
 at others' expense. Marriage. An institution necessary to stabilize every human generation for the next. This is an important point to make because many 
 tragic tales fixate on the idea of forced love and wanted love. Marriage is relevant in these situations. Yet, the institution is quite truly rotting in different 
 ways in every subsequent generation. But it survives every time, because marriage is an institution to couple human beings, and it would be human beings that 
-first die from illness or accident or war, first. 
+die from illness or accident or war, first. 
 
