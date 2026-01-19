@@ -51,5 +51,5 @@ denies some things to others, and has served humanity's idea of justice for and 
 
 Fate is not for humanity to fully know ahead of time. Tragedy is hindsight of the losses that occurred. And the future is desired by human leadership to be 
 controlled and manageable. Back to the first point made in this writing, continuation of some matters surely seems to be only for phantom objectives, thereby 
-subjugating the aspirations of individuals and deforming the will of the collective. Perverse, is it? Or inevitable. Now to call the terrible things that will 
+subjugating the aspirations of individuals and deforming the will of the collective. Perverse, is it? Or inevitable? Now to call the terrible things that will 
 occur in the future tragedy is pointless. Leave it to fate sometimes. There is no insult in that. 
