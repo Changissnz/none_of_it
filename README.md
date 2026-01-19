@@ -49,5 +49,5 @@ and what is worse, there are already predetermined expectations. This last point
 so clearly from human to human and from human society to individual, yet there is the conceptual social contract that guarantees some things to some people, 
 denies some things to others, and has served humanity's idea of justice for and against humanity since its inception. 
 
-Fate is not for humanity to fully know ahead of time. Tragedy is hindsight on the losses that occurred. And the future is desired by human leadership to be 
+Fate is not for humanity to fully know ahead of time. Tragedy is hindsight of the losses that occurred. And the future is desired by human leadership to be 
 controlled and manageable. 
