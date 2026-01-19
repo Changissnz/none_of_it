@@ -40,3 +40,14 @@ tragic tales fixate on the idea of forced love and wanted love. Marriage is rele
 ways in every subsequent generation. But it survives every time, because marriage is an institution to couple human beings, and it would be human beings that 
 die from illness or accident or war, first. 
 
+Here is one assumption, one that is completely true in the realm of physics and somewhat true in the realm of social nature: when people choose to violate 
+laws, uncertainty is certain to occur so that matters less than ideal are the product, at best, and products so damaging and irreversible, at worst. The laws 
+were violated, right? That is the convenient explanation, usually said by those more fortunate or those spiteful mediocrities that never dared to and now, after 
+seeing and hearing what occurred, think themselves so much higher than the tragicadiis. The judgments were made by emphasizing the difference between the 
+tragicadiis' end and their own survival and outcomes. The follies that occur...people never know until they try, yet many people already have their preferences, 
+and what is worse, there are already predetermined expectations. This last point of predetermined expectations is questionable. Not eveything is spelled out 
+so clearly from human to human and from human society to individual, yet there is the conceptual social contract that guarantees some things to some people, 
+denies some things to others, and has served humanity's idea of justice for and against humanity since its inception. 
+
+Fate is not for humanity to fully know ahead of time. Tragedy is hindsight on the losses that occurred. And the future is desired by human leadership to be 
+controlled and manageable. 
